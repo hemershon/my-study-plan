@@ -1,0 +1,3 @@
+# O que posso fazer para ajudar o próximo
+
+Pretendo Criar uma casa que distribui comida para as pessoas que não tem necessidades...
